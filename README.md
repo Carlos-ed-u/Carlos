@@ -5,4 +5,5 @@ Estou em transição para a área de tecnologia, com foco no desenvolvimento fro
 
 🌐 Vamos nos conectar:
 https://www.linkedin.com/in/carlos-silva-019465214/
+
 carlossilva1267@gmail.com
